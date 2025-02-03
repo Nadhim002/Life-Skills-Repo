@@ -87,3 +87,74 @@ In human interactions, passive communication occurs in scenarios involving:
 - Perceived personal disrespect
 - Defensive response to perceived threats
 - Unresolved long-standing frustrations
+
+## When do you switch into Passive Aggressive (sarcasm/gossiping/taunts/silent treatment and others) communication styles in your day to day life?
+
+- **Feeling Unheard or Ignored**:
+  - Express frustration indirectly when opinions or feelings are overlooked.
+
+- **Avoiding Direct Confrontation**:
+  - Use indirect tactics to express discontent without addressing issues head-on.
+
+- **Power Imbalance**:
+  - Express dissatisfaction indirectly in situations with authority figures.
+
+- **Fear of Rejection or Disapproval**:
+  - Vent frustrations indirectly to avoid direct criticism or disagreement.
+
+- **Suppressed Anger or Resentment**:
+  - Release built-up emotions indirectly due to difficulty expressing them openly.
+
+- **Lack of Assertiveness Skills**:
+  - Rely on passive-aggressive behaviours due to struggles with direct expression.
+
+- **Social or Cultural Norms**:
+  - Use indirect communication in settings where direct disagreement is discouraged.
+
+- **Feeling Helpless or Powerless**:
+  - Exert indirect control or influence when feeling powerless.
+
+## How can you make your communication assertive? You can watch and analyse the videos, then think what would be a few steps you can apply in your own life? (Watch the videos first before answering this question.)
+
+### Steps to Make Your Communication Assertive
+
+- **Understand Your Rights**:
+  - Recognize your right to express feelings, needs, and opinions respectfully.
+
+- **Be Clear and Concise**:
+  - State your message clearly and directly.
+
+- **Maintain Eye Contact**:
+  - Show confidence and engagement with eye contact.
+
+- **Use a Calm and Firm Tone**:
+  - Speak in a steady, calm voice.
+
+- **Practice Active Listening**:
+  - Show engagement through nodding, eye contact, and paraphrasing.
+
+- **Avoid Unnecessary Apologies**:
+  - Only apologize when genuinely wrong.
+
+- **Set Boundaries**:
+  - Clearly communicate your boundaries respectfully.
+
+- **Practice Saying "No"**:
+  - Decline requests politely but firmly when necessary.
+
+### Applying These Steps in Your Own Life
+
+- **Identify Situations**:
+  - Think about situations where you feel passive or aggressive.
+
+- **Plan Responses**:
+  - Plan what to say using "I" statements and clear language.
+
+- **Role-Play**:
+  - Practice assertive communication with a trusted friend.
+
+- **Reflect and Adjust**:
+  - Reflect on interactions and make adjustments.
+
+- **Seek Feedback**:
+  - Ask for feedback from trusted individuals.
